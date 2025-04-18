@@ -1,0 +1,1 @@
+# Memory-Kanji-Privacy
